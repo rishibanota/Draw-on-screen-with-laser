@@ -5,7 +5,7 @@
 
 ---
 
-**Watch Tutorial Here**:- https://youtube.com/shorts/j47HalB43Jg?si=29so0re-vuEUhYo_
+**Watch Tutorial Here ▶️**:- https://youtube.com/shorts/j47HalB43Jg?si=29so0re-vuEUhYo_
 
 ---
 
